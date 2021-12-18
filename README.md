@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @themeraparty
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+themeraparty/themeraparty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->Wedding Decorators in Hyderabad
+https://www.themeraparty.com/wedding-decorators-hyderabad/
+Mera Party Organisers is creative wedding decorators in Hyderabad with 11+ Years of expertise in wedding events planning & decorations. Our Creative team provides multiple wedding event services, over 50 different types of wedding decorations including mandaps, sangeet sets, engagement decorations, stage decoration, flower decoration, lighting decoration, live entertainment, gate arches, photo booths and car decorations.
+
